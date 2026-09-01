@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BUVC080122MDGRLLA0
+BUVC080122MDGRLLA0
